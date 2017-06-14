@@ -1,2 +1,4 @@
 # chiar-invat
-Aceasta treaba este facuta doar in copuri demonstrative pentru tutorial. Scuze de deranj.
+Daca gat tutorialul chiar o sa fiu foarte hyped.
+# de-ce
+Pentru ca are mai mult rost asa si am ajuns unde suntem.
